@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AbduLMalik187
-- 👀 I’m Interested in TheWorld And Sppes.🧜🏝️🤸..🌞..🛸..🧞🌐🧚☄️..🌛...🚀🪐....
+- 👀 I’m Interested in TheWorld And Sppes.
 
 - 📫 How to reach me ...
 
